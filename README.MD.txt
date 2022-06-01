@@ -1,0 +1,1 @@
+En aquest repositori, trobarás el examen de recuperació, de m5uf2 se Sergio Hervás.
